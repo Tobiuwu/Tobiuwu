@@ -1,6 +1,7 @@
-Hello, I am a programmer from Czechia
+# Haii hiii hiii wuu Haiiiii wuuuwu uwu!!! ~
+I am a student of the [Secondary Industrial School of Electrical Engineering Jecna](https://www.spsejecna.cz/) 30, Prague, Czech Republic.
+My preferred programming languages are Python and PHP.
+I like to create websites and I have experience with HTML, CSS, JS and PHP.
 
-I like making websites
-https://escty.neocities.org/
 
-![banner](https://user-images.githubusercontent.com/77515050/230110296-88ffe673-8201-4f41-8440-3b64b3f3e724.gif)
+![awa](https://user-images.githubusercontent.com/77515050/230142564-d16e17bb-8331-4ab8-ac12-c7c12afb72c3.gif)
