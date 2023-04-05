@@ -1,4 +1,4 @@
-# Haii hiii hiii wuu Haiiiii wuuuwu uwu!!! ~
+# Haii (✿◠‿◠)  hiii hiii ♥‿♥  wuu °˖✧◝(⁰▿⁰)◜✧˖°  Haiiiii (≧∇≦)/  wuuuwu uwu!!!  ~ﾟ +｡:.ﾟヽ(*´∀`)ﾉﾟ.:｡+ﾟ 
 I am a student of the [Secondary Industrial School of Electrical Engineering Jecna](https://www.spsejecna.cz/) 30, Prague, Czech Republic.
 My preferred programming languages are Python and PHP.
 I like to create websites and I have experience with HTML, CSS, JS and PHP.
