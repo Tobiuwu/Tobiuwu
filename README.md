@@ -1,5 +1,5 @@
 ```diff 
-! I Am S/h(im)e[r] As You(•‿•)  Am S/h(im)e[r] As／人◕ ‿‿ ◕人＼  You°˖✧◝(⁰▿⁰)◜✧˖°  Are Me and We ヘ(^o^ヘ) Am I and I Are All Our Together(/^▽^)/ 
+! I Am S/h(im)e[r] As You(•‿•)  Am S/h(im)e[r] As You Are Me and We ヘ(^o^ヘ) Am I and I Are All Our Together(/^▽^)/ 
 ```
 (✿◠‿◠)  hiii hiii ♥‿♥  wuu °˖✧◝(⁰▿⁰)◜✧˖°  Haiiiii (≧∇≦)/  wuuuwu uwu!!!  ~ﾟ +｡:.ﾟヽ(*´∀`)ﾉﾟ.:｡+ﾟ 
 I am a student of the [Secondary Industrial School of Electrical Engineering Jecna](https://www.spsejecna.cz/) 30, Prague, Czech Republic.
